@@ -21,6 +21,6 @@
 
 综上所述，持有阿根廷远游卡的朋友完全可以放心地注册并使用Instagram。只要按照正确的步骤操作，并且时刻关注自身的网络安全意识，就能够享受到这款社交软件带来的乐趣与便利。当然啦，如果还有其他关于注册流程或者其他方面的问题，欢迎随时向专业人士咨询哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
