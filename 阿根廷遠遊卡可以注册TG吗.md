@@ -1,4 +1,4 @@
-**阿根廷遠遊卡可以注册TG吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**阿根廷遠遊卡可以注册TG吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好，今天咱们来聊聊一个很多人都关心的问题：阿根廷的遠遊卡（也叫交通卡）能不能用来注册Telegram（简称TG）。如果你正在为这个问题苦恼，或者对阿根廷的交通卡和TG有些好奇，那么这篇文章就是为你准备的！
 
@@ -20,4 +20,4 @@
 
 好了，今天的分享就到这里啦！希望这篇文章能帮助到那些对阿根廷远遊卡和Telegram感兴趣的朋友们。如果你还有什么疑问或者想了解更多关于阿根廷的故事，欢迎在评论区留言交流哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

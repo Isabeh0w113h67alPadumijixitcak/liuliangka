@@ -1,4 +1,4 @@
-# 马来西亚4G卡可以注册TG吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 马来西亚4G卡可以注册TG吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 最近，有不少朋友在问马来西亚的4G卡能不能用来注册Telegram（简称TG）。作为一个长期生活在马来西亚的朋友，我今天就来给大家详细解答这个问题，顺便分享一下我在马来西亚使用4G卡和TG的经验。
 
@@ -64,4 +64,4 @@
 
 最后，如果你还有其他关于马来西亚4G卡或者Telegram的问题，欢迎随时留言讨论。我们一起探索更多有趣的科技话题吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
