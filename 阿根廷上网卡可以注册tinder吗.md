@@ -36,6 +36,6 @@
 
 最后，无论你是在阿根廷还是其他地方，使用Tinder时都要注意保护自己的隐私和安全。避免透露过多的个人信息，并在约会前与对方多沟通交流。希望每位用户都能在Tinder上找到属于自己的幸福！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)] 
+[[TG💪+ @esim1088](https://t.me/s/esim1088)] 
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
