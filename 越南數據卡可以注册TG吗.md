@@ -1,4 +1,4 @@
-# 越南数据卡是否能用于注册Telegram[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 越南数据卡是否能用于注册Telegram[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今数字化时代，即时通讯软件成为了人们日常生活中不可或缺的一部分。其中，Telegram（简称TG）作为一款功能强大、安全可靠的社交应用，吸引了全球无数用户的青睐。然而，对于某些用户而言，尤其是那些希望使用越南数据卡来注册Telegram的朋友们来说，可能会遇到一些疑问：越南数据卡真的能够用来注册Telegram吗？如果可以，具体应该如何操作呢？
 
@@ -20,4 +20,4 @@
 
 最后提醒大家，在享受便捷通讯的同时也要遵守相关法律法规，合理合法地使用互联网资源。希望大家都能充分利用手中的越南数据卡，开启一段愉快的Telegram之旅！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
