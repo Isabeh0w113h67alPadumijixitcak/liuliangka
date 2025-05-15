@@ -1,4 +1,4 @@
-# 马来西亚eSIM卡可以注册TG吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 马来西亚eSIM卡可以注册TG吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 随着科技的快速发展，电子SIM卡（eSIM）正在全球范围内迅速普及。在马来西亚，越来越多的人开始使用eSIM卡，因为它具有方便、环保和灵活性高等特点。不过，对于那些想要使用Telegram（简称TG）的人来说，可能会有一个疑问：**马来西亚的eSIM卡是否支持注册TG呢？**
 
@@ -30,4 +30,4 @@
 
 最后提醒一下，无论你是用什么方式注册TG，都要记住保持良好的上网习惯，避免泄露敏感信息。希望每位朋友都能享受愉快的交流时光！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
