@@ -35,7 +35,7 @@
 
 另外，WSApp还支持多种语言界面，因此即使你是外国人，也不会因为语言障碍而感到困扰。只需在设置中切换到中文或其他你熟悉的语言即可。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 ### **注意事项**
 
@@ -43,4 +43,4 @@
 
 总之，在阿根廷使用WSApp并不复杂，只要你按照上述步骤操作，很快就能享受到这款应用带来的乐趣。希望这篇文章对你有所帮助，祝你在阿根廷的生活更加丰富多彩！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
