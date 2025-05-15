@@ -1,4 +1,4 @@
-**马来西亚保号卡如何設置APN [[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**马来西亚保号卡如何設置APN [[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在马来西亚，如果你使用的是预付费的保号卡（也叫SIM卡），有时候可能会遇到网络连接问题或者需要手动配置APN（Access Point Name）。APN设置是手机连接到移动网络时的一个重要步骤，尤其是在更换运营商或者想要优化网络速度时。这篇文章将详细介绍如何在马来西亚设置保号卡的APN，无论是安卓还是苹果设备，都能轻松搞定。
 
@@ -84,4 +84,4 @@ APN，全称Access Point Name，是手机连接移动网络时使用的网关名
 
 希望这篇文章能帮助你在马来西亚愉快地使用保号卡上网！如果还有其他疑问，欢迎随时留言讨论。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

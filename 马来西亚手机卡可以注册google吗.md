@@ -26,6 +26,6 @@
 
 希望这篇文章能对您有所帮助！如果您还有其他关于Google账户注册的问题，欢迎随时留言交流。让我们一起探索数字世界的无限可能吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)] 
+[[TG💪+ @esim1088](https://t.me/s/esim1088)] 
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)

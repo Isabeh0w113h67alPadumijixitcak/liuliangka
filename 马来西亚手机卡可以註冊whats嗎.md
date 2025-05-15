@@ -26,6 +26,6 @@
 
 最后，无论您选择哪种方式注册WhatsApp，都要记得保护好自己的隐私和安全。不要随意透露个人信息，避免点击不明链接，确保您的账号始终处于安全状态。只有这样，我们才能更好地享受WhatsApp带来的便利和乐趣。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
